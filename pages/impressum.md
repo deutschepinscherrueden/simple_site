@@ -7,7 +7,7 @@ title: Impressum
 <p>Sabine Thomas<br/>
 Nordweg 24<br/>
 87700 Memmingen<br/>
-<a href="mailto:deutschepinscherdeckrueden@gmail.com">mailto:deutschepinscherdeckrueden@gmail.com</a>
+<a href="mailto:deutschepinscherdeckrueden@gmail.com">deutschepinscherdeckrueden@gmail.com</a>
 </p>
 <meta name="generator" content="Impressum-Generator der Kanzlei Hensche Rechtsanwälte"/>
 <p>&nbsp;</p>
