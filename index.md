@@ -14,7 +14,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ## Deckrüden Schwarz-Rot
 
-- 
+- [King Ari](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 
 
 ## Deckrüden Rot
