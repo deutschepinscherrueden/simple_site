@@ -15,7 +15,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ## Deckrüden Schwarz-Rot
 
 - [King Ari](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
-- [Dalmai-Dexter vom Kaiser Haus](www.damai-dexter-vom-kaiser-haus.de)
+- [Dalmai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
 
 ## Deckrüden Rot
 
