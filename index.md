@@ -7,18 +7,20 @@ Diese Homepage ist nicht als vollständige Deckrüdenliste gedacht, sondern soll
 
 Wer seinen Deckrüden in diese Tabelle eintragen lassen will, schickt mir bitte über [Kontakt](mailto:deutschepinscherdeckrueden@gmail.com) den Namen der Homepage. 
 
-Wer keine Homepage für seinen Rüden hat, kann auch die Homepage des Züchters schicken.
+Wer keine Homepage für seinen Rüden hat, kann auch ( nach Ansprache) die Homepage des Züchters schicken.
 
 Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseonline.com/germanpinscher/de/) oder Facebook ist möglich. Bitte aber nur Einträge mit Kontaktdaten.
+
+Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sotieren.
 
 
 ## Deckrüden Schwarz-Rot
 
-- [King Ari](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Dalmai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
 
 ## Deckrüden Rot
-
+-[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/
 - 
 
 ---
