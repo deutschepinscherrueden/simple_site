@@ -19,6 +19,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Dalmai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
 
+
 ## Deckrüden Rot
 
 -[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/
