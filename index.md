@@ -18,5 +18,3 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 
 ---
-
-[Impressum](pages/impressum.html)
