@@ -22,7 +22,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 ## Deckrüden Rot
 
--[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/
+- [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - 
 
 ---
