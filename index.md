@@ -19,12 +19,14 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Dalmai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
 - [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
-- [Dark Angel Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
+- [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 
 
 ## Deckrüden Rot
 
 - [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- [Megamagee borders-and-shading](www.baeretriewers-pinscher.de)
+- [Spirit of Moria's Belecthor](www.baeretriewers-pinscher.de)
 - 
 
 ---
