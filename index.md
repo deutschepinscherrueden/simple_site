@@ -22,7 +22,6 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - [Baron-Bendix vom Weitmoos](https:// www.baron-bendix.de)
 
-
 ## Deckrüden Rot
 
 - [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
