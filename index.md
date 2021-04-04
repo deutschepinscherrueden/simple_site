@@ -26,7 +26,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 - [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Megamagee borders-and-shading](www.baeretriewers-pinscher.de)
-- [Spirit of Moria's Belecthor](www.baeretriewers-pinscher.de)
+- [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de)
 - 
 
 ---
