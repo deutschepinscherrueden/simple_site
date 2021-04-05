@@ -24,6 +24,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
 - [Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
 - [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
+- [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 
 
 
