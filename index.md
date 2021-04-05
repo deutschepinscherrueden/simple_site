@@ -22,7 +22,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
 - [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
-- [Ole-Deluxe vom Ettaler Mandl](www.ole-deluxe.de)
+- [Ole-Deluxe vom Ettaler Mandl](https://www.ole-deluxe.de)
 
 
 
