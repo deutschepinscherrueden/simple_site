@@ -28,6 +28,8 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Proud Jewel Vincent](https://jesko-dp.de)
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
+- [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
+
 
 
 
