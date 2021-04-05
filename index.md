@@ -27,6 +27,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - [Proud Jewel Vincent](https://jesko-dp.de)
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
+- [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
 
 
 
