@@ -26,7 +26,10 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - [Proud Jewel Vincent](https://jesko-dp.de)
-- [La'rs Star of Elune](deutscher-pinscher.pl/)
+- [La'rs Star of Elune](http://deutscher-pinscher.pl)
+
+
+
 
 
 
