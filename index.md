@@ -33,6 +33,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Kasimir vom Sommernachtstraum](https://pinscher-vom-stiepelsberg.de/hunde/kasimir/)
 - [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
+- [Fero vom Bruchstein](https://www.fero-vom-bruchstein.de)
 
 
 
