@@ -28,7 +28,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Proud Jewel Vincent](https://jesko-dp.de)
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
-- [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
+- 
 - [Jerry-Sami vom Ettaler Mandl](https://jerrysamivomettalermandl.jimdofree.com/)
 - [Kasimir vom Sommernachtstraum](https://pinscher-vom-stiepelsberg.de/hunde/kasimir/)
 - [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
@@ -47,6 +47,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Megamagee borders-and-shading](https://www.baeretriewers-pinscher.de)
 - [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de)
 - [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
+- [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 - 
 
 ---
