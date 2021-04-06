@@ -48,7 +48,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de)
 - [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 - [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
-- [Legendorf Zenu]( http://dobinet.de/Zeno/)
+- [Legendorf Zeno]( http://dobinet.de/Zeno/)
 - 
 
 ---
