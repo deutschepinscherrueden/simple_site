@@ -35,6 +35,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
 - [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
 - [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
+- [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 
 
 
