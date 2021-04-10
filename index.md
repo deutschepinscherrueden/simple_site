@@ -37,6 +37,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 - [Baron Bennett vom Alten Kraftwerk](https://baron-bennett.jimdofree.com/)
+- [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
 
 
 
