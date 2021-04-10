@@ -36,6 +36,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
 - [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
+- [Baron Bennett vom Alten Kraftwerk](https://baron-bennett.jimdofree.com/)
 
 
 
