@@ -42,6 +42,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
 - [ Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
 - [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
+- [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 
 
 
