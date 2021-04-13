@@ -58,6 +58,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 - [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 - [Legendorf Zeno]( http://dobinet.de/Zeno/)
+- [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 - 
 
 ---
