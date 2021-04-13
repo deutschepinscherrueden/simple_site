@@ -41,6 +41,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
 - [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
 - [ Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
+- [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 
 
 
