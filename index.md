@@ -43,6 +43,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [ Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
 - [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
+- [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 
 
 
