@@ -69,7 +69,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
 - [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- [Dark Angels Making me Stronger](www.dark-angels-making-me-stronger.de)
+- [Dark Angels Making me Stronger](https://www.dark-angels-making-me-stronger.de)
 - 
 
 ---
