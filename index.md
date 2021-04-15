@@ -44,6 +44,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 - [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
+- [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
 
 
 
