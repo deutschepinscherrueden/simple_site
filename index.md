@@ -65,6 +65,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Legendorf Zeno]( http://dobinet.de/Zeno/)
 - [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 - [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
+- [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - 
 
 ---
