@@ -45,6 +45,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 - [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 - [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
+- [Rembrandt <<<erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 
 
 
