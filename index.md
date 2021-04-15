@@ -48,6 +48,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 - [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
+- 
 
 
 
@@ -68,6 +69,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
 - [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+- [Dark Angels Making me Stronger](www.dark-angels-making-me-stronger.de)
 - 
 
 ---
