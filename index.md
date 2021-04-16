@@ -49,6 +49,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - [ Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
+- [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
 - 
 
 
