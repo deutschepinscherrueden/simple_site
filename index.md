@@ -50,6 +50,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - [ Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
 - [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
+- [Keanu von der Schilli Ranch "Murphy"](https://keanuvonderschilliranch.jimdofree.com/keanu/)
 - 
 
 
