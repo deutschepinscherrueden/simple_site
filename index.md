@@ -73,6 +73,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
+- [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 - 
 
 ---
