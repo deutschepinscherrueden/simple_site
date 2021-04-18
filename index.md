@@ -41,6 +41,10 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 ### Hamburg
 
+### Hessen
+
+- [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
+
 ### Mecklenburg-Vorpommern
 
 ### Niedersachsen
@@ -74,10 +78,14 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 
+### Sachsen-Anhalt
+
+- Naumburg (saale) [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
+-
 
 
 - 
-- [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
+- 
 - 
 - 
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
@@ -89,8 +97,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
 - [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 - 
-- [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
--
+- 
 - [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
 - [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
 - [Archibald vom Kauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
