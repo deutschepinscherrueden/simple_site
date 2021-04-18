@@ -96,7 +96,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Östereich
 
--Steigersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
+- Steigersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 
 ### Schweiz
 
