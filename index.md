@@ -79,6 +79,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
 - [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 - [Hannes von der Schgilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
+- [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
 - 
 
 ---
