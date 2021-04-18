@@ -70,19 +70,21 @@ Saarland
 Sachsen
 
 -Leibzig[King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+-Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
+-Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 
 
 
 - 
 - [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
-- [Fero vom Bruchstein]( http://www.fero-vom-bruchstein.de)
-- [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
+- 
+- 
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
 - 
 -  [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
-- [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
+- 
 - [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
 - [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 - [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
