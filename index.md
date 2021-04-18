@@ -50,7 +50,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - Beckedorf  [Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
 - Rhauderfehn[Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
-- Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html
+- Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 
 ### Nordrhein-Westfalen
 
@@ -63,16 +63,16 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 ### Rheinland- Pfalz
 
-- Hassloch[Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
-- Trassem[Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
+- Hassloch [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
+- Trassem [Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
 
 ### Saarland
 
 ### Sachsen
 
-- Leibzig[King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
-- Werdau[Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
-- Dresden[Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
+- Leibzig [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
+- Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 
 
 
