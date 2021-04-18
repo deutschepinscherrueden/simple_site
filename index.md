@@ -81,6 +81,15 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 ### Sachsen-Anhalt
 
 - Naumburg (saale) [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
+
+### Schleswig-Hollstein
+
+- Lübeck [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
+
+### Thüringen
+
+- Wachsenburggemeinde [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
+- Schmalkalden [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
 -
 
 
@@ -90,7 +99,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - 
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
-- [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
+- 
 - 
 -  [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 - 
@@ -98,8 +107,8 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 - 
 - 
-- [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
-- [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
+-
+-
 - [Archibald vom Kauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - [Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - 
