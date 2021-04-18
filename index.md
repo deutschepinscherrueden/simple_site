@@ -62,24 +62,31 @@ Nordrhein-Westfalen
 
 Rheinland- Pfalz
 
--
+-Hassloch[Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
+-Trassem[Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
+
+Saarland
+
+Sachsen
+
+-Leibzig[King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 
 
 
-- [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- 
 - [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
-- [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
+- [Fero vom Bruchstein]( http://www.fero-vom-bruchstein.de)
 - [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
-- [Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
+- 
 -  [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 - [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 - [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
 - [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 - [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
-- [Keanu von der Schilli Ranch "Murphy"](https://keanuvonderschilliranch.jimdofree.com/keanu/)
+-
 - [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
 - [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
 - [Archibald vom Kauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
