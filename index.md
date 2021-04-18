@@ -11,7 +11,6 @@ Wer keine Homepage für seinen Rüden hat, kann auch ( nach Ansprache) die Homep
 
 Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseonline.com/germanpinscher/de/) oder Facebook ist möglich. Bitte aber nur Einträge mit Kontaktdaten.
 
-Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sotieren.
 
 
 ## Deckrüden Schwarz-Rot
