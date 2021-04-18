@@ -17,7 +17,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 ## Deckrüden Schwarz-Rot
    Baden- Württemberg
   
- -[Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
+-[Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
 
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
