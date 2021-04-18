@@ -51,6 +51,9 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [ Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
 - [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
 - [Keanu von der Schilli Ranch "Murphy"](https://keanuvonderschilliranch.jimdofree.com/keanu/)
+- [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
+- [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
+- 
 - 
 
 
@@ -74,6 +77,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
 - [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
+- [Hannes von der Schgilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
 - 
 
 ---
