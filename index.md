@@ -25,11 +25,13 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 Bayern
 
+- Wernberg-Köblitz [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
+
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
 - [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
 - [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
-- [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
+- 
 - [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
 - 
 - [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
