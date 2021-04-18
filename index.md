@@ -54,6 +54,8 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
 - [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
 - [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
+- [Archibald vom Kauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
+- [Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - 
 - 
 
