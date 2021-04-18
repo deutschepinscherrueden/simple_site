@@ -55,6 +55,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - Rhauderfehn [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
+- Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 
 ### Nordrhein-Westfalen
 
@@ -85,33 +86,31 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 ### Schleswig-Hollstein
 
 - Lübeck [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
+- Kuddewörde[Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 
 ### Thüringen
 
 - Wachsenburggemeinde [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
 - Schmalkalden [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
--
 
+## Ausland
 
-- 
-- 
-- 
-- 
-- [La'rs Star of Elune](http://deutscher-pinscher.pl)
-- [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
-- 
-- 
--  [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
-- 
-- [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
-- [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
-- 
-- 
--
--
-- [Archibald vom Kauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
-- [Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
-- 
+### Östereich
+
+-Steigersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
+
+### Schweiz
+
+- Hühnenber See [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
+
+### Niederlande
+
+- Ütrich [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
+- Alkmaar [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
+
+### Polen
+
+- Wroclaw [La'rs Star of Elune](http://deutscher-pinscher.pl)
 - 
 
 
