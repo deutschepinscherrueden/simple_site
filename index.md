@@ -80,7 +80,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Sachsen-Anhalt
 
-- Naumburg (saale) [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
+- Naumburg (Saale) [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
 
 ### Schleswig-Hollstein
 
