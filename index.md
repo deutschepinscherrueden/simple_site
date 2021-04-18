@@ -18,6 +18,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
    Baden- Württemberg
   
 - Tettnang[Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
+- Altdorf [Freyr Neit Konstantin](http://www.haller-barnabas.de/) 
 
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
@@ -34,7 +35,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
 - [Jerry-Sami vom Ettaler Mandl](https://jerrysamivomettalermandl.jimdofree.com/)
 - [Kasimir vom Sommernachtstraum](https://pinscher-vom-stiepelsberg.de/hunde/kasimir/)
-- [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
+- 
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
 - [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
 - [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
