@@ -21,7 +21,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - Altdorf [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
 - Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 - Hechingen [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
-- Karlruhe [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
+- Karlsruhe [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
 
 Bayern
 
