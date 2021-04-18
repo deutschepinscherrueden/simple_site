@@ -18,7 +18,12 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
    Baden- Württemberg
   
 - Tettnang[Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
-- Altdorf [Freyr Neit Konstantin](http://www.haller-barnabas.de/) 
+- Altdorf [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
+- Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
+- Hechingen [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
+- Karlruhe [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
+
+Bayern
 
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
@@ -39,11 +44,11 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
 - [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
 - [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
-- [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
+- 
 - [Baron Bennett vom Alten Kraftwerk](https://baron-bennett.jimdofree.com/)
 - [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
 - [Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
-- [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
+- 
 - [ Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
 - [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
@@ -53,7 +58,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - [ Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
-- [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
+- 
 - [Keanu von der Schilli Ranch "Murphy"](https://keanuvonderschilliranch.jimdofree.com/keanu/)
 - [Hasko von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hasko-von-der-Schilli-Ranch/pedigree/15237/i)
 - [Djago von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Djago-von-der-Schilli-Ranch/pedigree/9563/i)
