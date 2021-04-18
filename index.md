@@ -16,6 +16,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 
 ## Deckrüden Schwarz-Rot
    Baden- Württemberg
+   [Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
 
 - [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
@@ -23,7 +24,7 @@ Wenn sich genug Deckrüden gemeldet haben werde ich sie auch nach Bundesland sot
 - [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
 - [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
-- [Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
+- 
 - [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - [Proud Jewel Vincent](https://jesko-dp.de)
