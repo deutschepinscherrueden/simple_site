@@ -64,7 +64,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - Ladenbergen  [Proud Jewel Vincent](https://jesko-dp.de)
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
-- Gütersloh [Quickley Cach vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
+- Gütersloh [Quickley Cash vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
 
 ### Rheinland- Pfalz
 
