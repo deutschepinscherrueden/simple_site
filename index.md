@@ -29,6 +29,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Maisach          [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
 - Neuried          [Jerry-Sami vom Ettaler Mandl](https://jerrysamivomettalermandl.jimdofree.com/)
 - Stein            [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
+- Vilsheim [Feuersteinchen vom Königsherz](https://pedigreedatabaseonline.com/germanpinscher/de/Feuersteinchen-vom-K%C3%B6nigsherz/pedigree/13236/i)
 
 ### Berlin
 
