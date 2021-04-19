@@ -42,7 +42,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Hessen
 
-- [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
+- Ehringen [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
 
 ### Mecklenburg-Vorpommern
 
