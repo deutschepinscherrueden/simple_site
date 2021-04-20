@@ -99,7 +99,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Östereich
 
 - Stegersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
-- [Prinz Paul von Burg Wildenstein](https://pinscher-burgwildenstein.jimdofree.com/)
+-  Wien [Prinz Paul von Burg Wildenstein](https://pinscher-burgwildenstein.jimdofree.com/)
 
 ### Schweiz
 
