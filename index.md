@@ -100,6 +100,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 - Stegersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 -  Wien [Prinz Paul von Burg Wildenstein](https://pinscher-burgwildenstein.jimdofree.com/)
+-  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
 
 ### Schweiz
 
