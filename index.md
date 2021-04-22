@@ -60,7 +60,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Nordrhein-Westfalen
 
 - Unna [Damai-Dexter vom Kaiser Haus](https://www.damai-dexter-vom-kaiser-haus.de)
-- Mönchengladbach [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
+- Hückelhoven [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - Bünde [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - Ladenbergen  [Proud Jewel Vincent](https://jesko-dp.de)
@@ -100,7 +100,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 - Stegersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 -  Wien [Prinz Paul von Burg Wildenstein](https://pinscher-burgwildenstein.jimdofree.com/)
--  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
+-  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz "Loki"](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
 
 ### Schweiz
 
@@ -137,7 +137,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
 - [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
-- [Hannes von der Schgilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
+- [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
 - [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
 - 
 
