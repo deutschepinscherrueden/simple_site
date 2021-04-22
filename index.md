@@ -57,7 +57,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - Westoverledingen[Hardy von der Schwalmaue](https://hardy-von-der-schwalmaue.jimdofree.com/)
-- [Schröder von der Schwalmaue](https://www.facebook.com/Schr%C3%B6der-von-der-Schwalmaue-296213611010043/)
+- 
 
 ### Nordrhein-Westfalen
 
@@ -68,6 +68,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Ladenbergen  [Proud Jewel Vincent](https://jesko-dp.de)
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - Gütersloh [Quickley Cash vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
+- Gelsenkirchen [Schröder von der Schwalmaue](https://www.deutsche-pinscher-von-der-schwalmaue.de/schroeder.html)
 
 ### Rheinland- Pfalz
 
