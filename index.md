@@ -57,6 +57,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - Westoverledingen[Hardy von der Schwalmaue](https://hardy-von-der-schwalmaue.jimdofree.com/)
+- [Schröder von der Schwalmaue](https://www.facebook.com/Schr%C3%B6der-von-der-Schwalmaue-296213611010043/)
 
 ### Nordrhein-Westfalen
 
