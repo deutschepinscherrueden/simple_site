@@ -136,7 +136,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Berlin
 
-### 
+### Brandenburg
 
 ### Bremen
 
@@ -145,21 +145,20 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Hessen
 - Stadtallendorf[Legendorf Zeno]( http://dobinet.de/Zeno/)
 
-###Mecklenburg-Vorpommern
+### Mecklenburg-Vorpommern
 
-###Niedersachsen
--[Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
+### Niedersachsen
+- Oldenburg [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
 
 ### Nordrein-Westfalen
--
--[Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
--[Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+- Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 
-###Rheinland-Pfalz
+### Rheinland-Pfalz
 
-###Saarland
+### Saarland
 
-###Sachsen
+### Sachsen
 -[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 
 ###Sachsen-Anhalt
@@ -168,16 +167,16 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 -[Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 -[Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 
-###Thüringen
--[Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
+### Thüringen
+- Neudietendorf [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
 
-##Ausland
+## Ausland
 
-###Östereich
--[Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
+### Östereich
+- Steigerbach [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
 
-###Schweiz
--[Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
+### Schweiz
+- Ependes [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
 
 - 
 - 
