@@ -152,7 +152,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i
+- Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
 
@@ -178,20 +179,3 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Schweiz
 - Ependes [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
 
-- 
-- 
-- 
-- 
-- 
-- 
-- [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-
----
