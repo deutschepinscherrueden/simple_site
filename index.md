@@ -129,7 +129,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ## Deckrüden Rot
 
 - [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
-- [Megamagee borders-and-shading](https://www.baeretriewers-pinscher.de)
+- 
 - [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de)
 - [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 - [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
