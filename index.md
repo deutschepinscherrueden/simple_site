@@ -130,7 +130,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 - [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - 
-- [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de)
+- [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de/unsere-hunde/spirit-of-moria-s-belecthor/)
 - [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 - [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 - [Legendorf Zeno]( http://dobinet.de/Zeno/)
