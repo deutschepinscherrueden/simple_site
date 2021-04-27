@@ -159,11 +159,11 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Saarland
 
 ### Sachsen
--[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 
-###Sachsen-Anhalt
+### Sachsen-Anhalt
 
-###Schleswig-Hollstein
+### Schleswig-Hollstein
 -[Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 -[Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 
