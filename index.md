@@ -128,20 +128,71 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ## Deckrüden Rot
 
-- [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+###Baden- Württenberg
+-[Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de/unsere-hunde/spirit-of-moria-s-belecthor/)
+-[Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
+
+###Bayern
+
+###Berlin
+
+###Brandenburg
+
+###Bremen
+
+###Hamburg
+
+###Hessen
+-[Legendorf Zeno]( http://dobinet.de/Zeno/)
+
+###Mecklenburg-Vorpommern
+
+###Niedersachsen
+-[Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
+
+### Nordrein-Westfalen
+-
+-[Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+-[Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+
+###Rheinland-Pfalz
+
+###Saarland
+
+###Sachsen
+-[Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+
+###Sachsen-Anhalt
+
+###Schleswig-Hollstein
+-[Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
+-[Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
+
+###Thüringen
+-[Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
+
+##Ausland
+
+###Östereich
+-[Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
+
+###Schweiz
+-[Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
+
 - 
-- [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de/unsere-hunde/spirit-of-moria-s-belecthor/)
-- [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
-- [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
-- [Legendorf Zeno]( http://dobinet.de/Zeno/)
+- 
+- 
+- 
+- 
+- 
 - [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
-- [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
-- [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
-- [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
-- [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
-- [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
+- 
+- 
+- 
+- 
+- 
+- 
+- 
 - 
 
 ---
