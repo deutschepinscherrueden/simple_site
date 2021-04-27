@@ -90,7 +90,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Schleswig-Hollstein
 
 - Lübeck [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
-- Kuddewörde[Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
+- Kuddewörde [Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 
 ### Thüringen
 
@@ -143,7 +143,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Hamburg
 
 ### Hessen
-- Stadtallendorf[Legendorf Zeno]( http://dobinet.de/Zeno/)
+- Stadtallendorf [Legendorf Zeno]( http://dobinet.de/Zeno/)
 
 ### Mecklenburg-Vorpommern
 
@@ -152,7 +152,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i
+- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
@@ -160,7 +160,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Saarland
 
 ### Sachsen
-- [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
+- Leibzig [Oberst Otto vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 
 ### Sachsen-Anhalt
 
