@@ -164,8 +164,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Sachsen-Anhalt
 
 ### Schleswig-Hollstein
--[Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
--[Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
+- Tornesch [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
+- Neumünster [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 
 ### Thüringen
 - Neudietendorf [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
