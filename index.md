@@ -106,7 +106,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Schweiz
 
-- Hühnenber See [Arik-JJ von Wallbach am Rhein](https://www.deutscher-pinscher-jj.ch/)
+- Hühnenber See [Arik-JJ von Wallbach am Rhein](https://deutscherpinscherjj.jimdosite.com/)
+
 
 ### Niederlande
 
