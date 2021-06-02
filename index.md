@@ -152,7 +152,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
+- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Conner-of-Forest-Rose/pedigree/14895/i)
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
