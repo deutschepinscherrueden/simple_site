@@ -81,7 +81,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Leibzig [King Ari vom Röderauer Elbland](https://www.deutscher-pinscher-king-ari.de/oberst-otto/)
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
-- Chemnitz[Asbjörn Dansk Kennel Klup "Anouk"](http://asbjorn-deutscherpinscherdeckruede@gmx.de)
+- Chemnitz [Asbjörn Dansk Kennel Klup "Anouk"](http://asbjorn-deutscherpinscherdeckruede@gmx.de)
 
 ### Sachsen-Anhalt
 
