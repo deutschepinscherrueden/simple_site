@@ -150,6 +150,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Niedersachsen
 - Oldenburg [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
+- Bassum [Falcon Ce Da Set Bohemicus](https://www.falconcedasetbohemicus.de/)
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
