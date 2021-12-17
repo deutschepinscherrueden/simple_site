@@ -136,7 +136,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Achstetten [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 
 ### Bayern
--Buch am Erlbach [Bright Fox Inner Light " Foxi"] (https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi) 
+-Buch am Erlbach [Bright Fox Inner Light "Foxi"](https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi/)
 
 ### Berlin
 
