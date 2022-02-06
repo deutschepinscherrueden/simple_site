@@ -179,6 +179,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Östereich
 - Steigerbach [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
+- Wels [Regina's Minpin A Redstar Amargllo](https://deutscher-pinscher-deckruede-amaryllo.jimdosite.com/)
 
 ### Schweiz
 - Ependes [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
