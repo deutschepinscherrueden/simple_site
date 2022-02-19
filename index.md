@@ -68,7 +68,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - Gütersloh [Quickley Cash vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
 - Gelsenkirchen [Schröder von der Schwalmaue](https://www.deutsche-pinscher-von-der-schwalmaue.de/schroeder.html)
-- Reichshof [Eddie Duke von Modisse](ttps://www.pinscher-von-modisse.de/4.html  https://psk-og-bonn.de/deckr%C3%BCden)
+- Reichshof [Eddie Duke von Modisse](ttps://www.pinscher-von-modisse.de/4.html  https://psk-og-bonn.de/deckr%C3%BCden  https://pedigreedatabaseonline.com/germanpinscher/de/Eddie-Duke-von-Modisse/pedigree/17801/i)
                                     
                                    
 
