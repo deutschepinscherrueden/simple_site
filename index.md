@@ -28,6 +28,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Wernberg-Köblitz [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
 - Maisach          [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
 - Stein            [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
+- Stein [Pich-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
 - Vilsheim [Feuersteinchen vom Königsherz "Jake"](https://pedigreedatabaseonline.com/germanpinscher/de/Feuersteinchen-vom-K%C3%B6nigsherz/pedigree/13236/i)
 
 ### Berlin
