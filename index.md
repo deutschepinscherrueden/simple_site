@@ -62,7 +62,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Nordrhein-Westfalen
 
-- Unna [Damai-Dexter vom Kaiser Haus](www.damai-dexter-vom-kaiser-h.jimdofree.com)
+- Unna [Damai-Dexter vom Kaiser Haus](https://damai-dexter-vom-kaiser-h.jimdofree.com/)
 - Hückelhoven [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - Bünde [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
