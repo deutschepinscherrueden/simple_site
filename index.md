@@ -22,7 +22,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 - Hechingen   [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
 - Karlsruhe   [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
-- Bad Friedrichshall [Red Firefly Wot a Thiller "Toni"](https://www.deutsche-pinscher.com/deckr%C3%BCden/toni/)
 
 ### Bayern
 
@@ -135,6 +134,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Baden- Württenberg
 - Durmersheim [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de/unsere-hunde/spirit-of-moria-s-belecthor/)
 - Achstetten [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
+- Bad Friedrichshall [Red Firefly Wot a Thiller "Toni"](https://www.deutsche-pinscher.com/deckr%C3%BCden/toni/)
+
 
 ### Bayern
 - Buch am Erlbach [Bright Fox Inner Light "Foxi"](https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi/)
