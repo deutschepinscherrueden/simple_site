@@ -91,7 +91,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Schleswig-Hollstein
 
-- Lübeck [Don Bruno de la Ville Hamburg](http://www.pinscher-hamburg.de/zuchtrüden/don-bruno/)
+- Lübeck [Don Bruno de la Ville Hamburg](https://www.pinscher-hamburg.de/nachwuchs-zuchtrüden/)
 - Kuddewörde [Manfred vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 
 ### Thüringen
