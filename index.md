@@ -57,7 +57,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
-- Westoverledingen[Hardy von der Schwalmaue](https://hardy-von-der-schwalmaue.jimdofree.com/)
 - Brest [Earl Pepper vom Isern Hinnerk](https://mbannas.wixsite.com/vomisernhinnerk/deckr%C3%BCde)
 
 ### Nordrhein-Westfalen
