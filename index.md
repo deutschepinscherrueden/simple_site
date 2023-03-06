@@ -45,6 +45,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 - Ehringen [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
 - Heppenheim [Conspirol Supershani Stavros(Nico)](https://www.deutsche-pinscher.com/deckr%C3%BCden/nico/?fbclid=IwAR39xe-es3vl8kJlIoekhO4gmJhQ-4uAmJL7mIxkSD5tYcYCfFNvZMEM1Ug)
+- Oberursel [Arkos Oskar vom Nebelwald](https://www.zwergpinschervomnebelwald.de/deckr%C3%BCden/arkos-oskar-vom-nebelwald/)
 
 ### Mecklenburg-Vorpommern
 
