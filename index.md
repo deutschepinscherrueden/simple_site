@@ -138,7 +138,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Bayern
 - Buch am Erlbach [Bright Fox Inner Light "Foxi"](https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi/)
-- Stein [Pich-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
+- Stein [Pinch-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
 
 ### Berlin
 
