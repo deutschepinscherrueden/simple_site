@@ -37,6 +37,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Brandenburg
 
 ### Bremen
+-[Kenobi de la Ville de Hamburg](https://www.pinscher-hamburg.de/deckr%C3%BCden/kenobi/)
 
 ### Hamburg
 
@@ -149,7 +150,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Hamburg
 
 ### Hessen
-- Stadtallendorf [Legendorf Zeno]( http://dobinet.de/Zeno/)
 
 ### Mecklenburg-Vorpommern
 
