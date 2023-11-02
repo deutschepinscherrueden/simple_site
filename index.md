@@ -18,7 +18,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Baden-Württemberg
   
 - Tettnang    [Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
-- Altdorf     [Freyr Neit Konstantin](http://www.haller-barnabas.de/)
+- Altdorf     [Freyr Neit Konstantin](https://pedigreedatabaseonline.com/germanpinscher/de/Freyr-Neit-Konstantin/pedigree/7931/i).
 - Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 - Hechingen   [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
 - Karlsruhe   [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
