@@ -70,7 +70,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Gütersloh [Quickley Cash vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
 - Gelsenkirchen [Schröder von der Schwalmaue](https://www.deutsche-pinscher-von-der-schwalmaue.de/schroeder.html)
 - Reichshof [Eddie Duke von Modisse](https://pedigreedatabaseonline.com/germanpinscher/de/Eddie-Duke-von-Modisse/pedigree/17801/i)
-- Ladbergen [Proud Jewel Vincent](https://www.http://jesko-dp.de/)
+- Ladbergen [Proud Jewel Vincent](http://jesko-dp.de)
 ### Rheinland- Pfalz
 
 - Hassloch [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
