@@ -80,7 +80,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Sachsen
 
-- Leipzig [King Ari vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642688/king-ari.html)
+- Leipzig [King Ari vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 - Chemnitz [Asbjörn Dansk Kennel Klup "Anouk"](https://www.facebook.com/AsbjoernDP/)
