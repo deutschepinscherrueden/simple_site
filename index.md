@@ -169,7 +169,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Saarland
 
 ### Sachsen
-- Leipzig [Oberst Otto vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642688/king-ari.html)
+- Leipzig [Oberst Otto vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
 
 ### Sachsen-Anhalt
 
