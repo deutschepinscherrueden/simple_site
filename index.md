@@ -59,6 +59,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - Brest [Earl Pepper vom Isern Hinnerk](https://mbannas.wixsite.com/vomisernhinnerk/deckr%C3%BCde)
+- Hameln [Vasko von der Südheide](https://pedigreedatabaseonline.com/germanpinscher/de/Vasco-von-der-S%C3%BCd-Heide/pedigree/19088/i)
 
 ### Nordrhein-Westfalen
 
@@ -80,7 +81,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Sachsen
 
-- Leipzig [King Ari vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
+
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 - Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
 - Chemnitz [Asbjörn Dansk Kennel Klup "Anouk"](https://www.facebook.com/AsbjoernDP/)
@@ -132,7 +133,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ## Deckrüden Rot
 
 ### Baden- Württenberg
-- Durmersheim [Spirit of Moria's Belecthor](https://www.baeretriewers-pinscher.de/unsere-hunde/spirit-of-moria-s-belecthor/)
 - Achstetten [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
 - Bad Friedrichshall [Red Firefly Wot a Thiller "Toni"](https://www.deutsche-pinscher.com/deckr%C3%BCden/toni/)
 
