@@ -140,6 +140,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Bayern
 - Buch am Erlbach [Bright Fox Inner Light "Foxi"](https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi/)
 - Stein [Pinch-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
+- Eichstätt [Zhivariis-QuickSilver"Samsa"](https://pedigreedatabaseonline.com/germanpinscher/de/Zhivariis-QuickSilver/pedigree/19339/i)
+- Bayreuth [Sommarstadens Gracious Clow"Legolas"](https://pedigreedatabaseonline.com/germanpinscher/en/Sommarstadens-Gracious-Glow/pedigree/18176/i)
 
 ### Berlin
 
