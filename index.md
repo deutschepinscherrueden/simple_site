@@ -167,6 +167,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
+- Hassloch [Bäretriewer's Ukko "Mogli"](https://baeretriewersukko.jimdofree.com/)
 
 ### Saarland
 
