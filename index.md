@@ -53,7 +53,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 - Salzhausen [Kasimir vom Sommernachtstraum](https://pinscher-vom-stiepelsberg.de/hunde/kasimir/)
 - Hannover [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
-- Beckedorf  [Gäel vom Robinienhof "Paul"](http://gaeelvomrobinienhof.de/)
 - Rhauderfehn [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
@@ -182,6 +181,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Thüringen
 - Neudietendorf [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
+- Erfurt[Dazard Dilard Andbelzer Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
 
 ## Ausland
 
