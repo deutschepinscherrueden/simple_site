@@ -181,7 +181,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Thüringen
 - Neudietendorf [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
-- Erfurt[Dazard Dilard Andbelzer Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
+- Erfurt[Dazard Dilard Andbeker Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
 
 ## Ausland
 
