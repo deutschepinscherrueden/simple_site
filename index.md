@@ -51,7 +51,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Niedersachsen
 
-- Salzhausen [Kasimir vom Sommernachtstraum](https://pinscher-vom-stiepelsberg.de/hunde/kasimir/)
 - Hannover [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
 - Rhauderfehn [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
