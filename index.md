@@ -51,7 +51,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Niedersachsen
 
-- Hannover [Fero vom Bruchstein](http://www.fero-vom-bruchstein.de/)
+- Wietze [Fero vom Bruchstein](https://starlords.jimdosite.com/)
 - Rhauderfehn [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
