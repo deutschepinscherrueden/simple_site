@@ -159,6 +159,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Bassum [Falcon Ce Da Set Bohemicus](https://www.falconcedasetbohemicus.de/)
 - Lüchow-Dannenberg [Dark Angels Jukebox Hero "Hugo"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Jukebox-Hero/pedigree/11657/i)
 - Hameln [Huckleberry vom Schützengrund](https://www.pinscher-schuetzengrund.de/deutscher-pinscher-1/huckleberry/)
+- Lotte [Bond vom Treenevalley] verlinkung auf die HP folgt
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
