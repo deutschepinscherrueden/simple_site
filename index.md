@@ -59,6 +59,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
 - Brest [Earl Pepper vom Isern Hinnerk](https://mbannas.wixsite.com/vomisernhinnerk/deckr%C3%BCde)
 - Hameln [Vasko von der Südheide](https://pedigreedatabaseonline.com/germanpinscher/de/Vasco-von-der-S%C3%BCd-Heide/pedigree/19088/i)
+- Ostercappeln [Muethisch Bielefeld gibts nicht Ben "Burkhard"](https://pedigreedatabaseonline.com/germanpinscher/de/Muethisch-Bielefeld-gibts-nicht-Ben/pedigree/18914/i)
 
 ### Nordrhein-Westfalen
 
