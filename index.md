@@ -17,11 +17,8 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Baden-Württemberg
   
-- Tettnang    [Ole-Deluxe vom Ettaler Mandl](http://www.ole-deluxe.de/)
 - Altdorf     [Freyr Neit Konstantin](https://pedigreedatabaseonline.com/germanpinscher/de/Freyr-Neit-Konstantin/pedigree/7931/i).
 - Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
-- Hechingen   [Dark Angels Candy Man "Tasco"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Candy-Man/pedigree/8379/i)
-- Karlsruhe   [Dark Angels Lost and Found "Logan"](https://dark-angels-lost-and-found.jimdosite.com/)
 - Stuttgart   [Kaminski de la Ville de Hamburg](https://www.pinscher-hamburg.de/deckr%C3%BCden/kaminski/)
 
 ### Bayern
@@ -53,7 +50,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Niedersachsen
 
 - Wietze [Fero vom Bruchstein](https://starlords.jimdosite.com/)
-- Rhauderfehn [Lille Pirons Only One](https://pedigreedatabaseonline.com/germanpinscher/de/Lilla-Pir%C3%B6ns-Only-One/pedigree/5405/i)
 - Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Lehrte   [Archibald vom Zauberwald](https://www.pinschervomzauberwald.de/deckr%C3%BCden/)
@@ -83,8 +79,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
-- Dresden [Amur vom Lajmtal](http://deutscherpinscher-dresden.de/)
-- Chemnitz [Asbjörn Dansk Kennel Klup "Anouk"](https://www.facebook.com/AsbjoernDP/)
+
 
 ### Sachsen-Anhalt
 
@@ -164,7 +159,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Nordrein-Westfalen
 - Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
-- Münster [Connor of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Conner-of-Forest-Rose/pedigree/14895/i)
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
@@ -182,7 +176,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Neumünster [Nils-Ole vom Röderauer Elbland](http://www.pinscher-vom-suenderbek.de/)
 
 ### Thüringen
-- Neudietendorf [Hannes von der Schilli Ranch](https://pedigreedatabaseonline.com/germanpinscher/de/Hannes-von-der-Schilli-Ranch/pedigree/9554/i)
 - Erfurt[Dazard Dilard Andbeker Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
 
 ## Ausland
