@@ -99,7 +99,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Östereich
 
-- Stegersbach Südburgenland [Black-Jack von Burg Widenstein](https://peterschils.jimdofree.com/)
 -  Wien [Prinz Paul von Burg Wildenstein](https://pinscher-burgwildenstein.jimdofree.com/)
 -  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz "Loki"](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
 
@@ -181,7 +180,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ## Ausland
 
 ### Östereich
-- Steigerbach [Hey Redmen von Burg Widenstein](https://peterschils.jimdofree.com/) 
+
 - Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://deutscher-pinscher-deckruede-amaryllo.jimdosite.com/)
 
 ### Schweiz
