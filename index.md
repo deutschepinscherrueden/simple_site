@@ -167,7 +167,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Sachsen-Anhalt
 
 ### Schleswig-Hollstein
-- Tornesch [Benny von den Spessartwächtern](https://bennyvondenspessartwaechtern.jimdofree.com/)
 
 
 ### Thüringen
