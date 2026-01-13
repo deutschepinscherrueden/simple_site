@@ -50,7 +50,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Niedersachsen
 
 - Wietze [Fero vom Bruchstein](https://starlords.jimdosite.com/)
-- Hannover  [Gustavo von der Grafschaft Mark "Tavo"](http://www.pinscher-zwerge.de/14.html)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
 - Brest [Earl Pepper vom Isern Hinnerk](https://mbannas.wixsite.com/vomisernhinnerk/deckr%C3%BCde)
 - Hameln [Vasko von der Südheide](https://pedigreedatabaseonline.com/germanpinscher/de/Vasco-von-der-S%C3%BCd-Heide/pedigree/19088/i)
