@@ -42,7 +42,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Hessen
 
-- Ehringen [Balmani vom Kaiser Haus](https://www.topdogs.pro/zucht/deckr%C3%BCden/balmani-v-kaiser-haus/)
 - Heppenheim [Conspirol Supershani Stavros(Nico)](https://www.deutsche-pinscher.com/deckr%C3%BCden/nico/?fbclid=IwAR39xe-es3vl8kJlIoekhO4gmJhQ-4uAmJL7mIxkSD5tYcYCfFNvZMEM1Ug)
   
 
@@ -60,7 +59,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Nordrhein-Westfalen
 
 - Unna [Damai-Dexter vom Kaiser Haus](https://damai-dexter-vom-kaiser-h.jimdofree.com/)
-- Hückelhoven [Dark Angels Paradise Lost](https://www.facebook.com/DeckruedeDeutscherPinscher)
 - Bünde [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
@@ -109,7 +107,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Niederlande
 
-- Ütrich [Poud Juwel Olymp Olle](https://pedigreedatabaseonline.com/germanpinscher/de/Proud-Jewel-Olymp-Olle/pedigree/8618/i)
 - Alkmaar [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 
 ### Polen
@@ -128,7 +125,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Baden- Württenberg
 - Achstetten [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
-- Bad Friedrichshall [Red Firefly Wot a Thiller "Toni"](https://www.deutsche-pinscher.com/deckr%C3%BCden/toni/)
+
 
 
 ### Bayern
@@ -150,7 +147,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Mecklenburg-Vorpommern
 
 ### Niedersachsen
-- Oldenburg [Dark Angels Making me Stronger "Chester"](https://www.dark-angels-making-me-stronger.de)
 - Bassum [Falcon Ce Da Set Bohemicus](https://www.falconcedasetbohemicus.de/)
 - Lüchow-Dannenberg [Dark Angels Jukebox Hero "Hugo"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Jukebox-Hero/pedigree/11657/i)
 - Hameln [Huckleberry vom Schützengrund](https://www.pinscher-schuetzengrund.de/deutscher-pinscher-1/huckleberry/)
@@ -176,6 +172,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Thüringen
 - Erfurt[Dazard Dilard Andbeker Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
+- 
 
 ## Ausland
 
@@ -184,4 +181,3 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://deutscher-pinscher-deckruede-amaryllo.jimdosite.com/)
 
 ### Schweiz
-- Ependes [Dark Angels Dust in the Wind "Lanny"](https://www.schnauzer-pinscherclub.ch/deutsche-pinscher-1.html)
