@@ -78,9 +78,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Werdau [Cacaoträumchen "Bruno"vom Königsherz](https://deutscher-pinscher-koenigsherz.jimdofree.com/)
 
 
-### Sachsen-Anhalt
-
-- Naumburg (Saale) [Charlie vom Schwansee](https://charlievomschwansee.jimdofree.com/)
+### Sachsen-Anhald
 
 ### Schleswig-Hollstein
 
@@ -109,7 +107,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 ### Polen
 
 - Wroclaw [La'rs Star of Elune](http://deutscher-pinscher.pl)
-- 
+ 
 
 
 
