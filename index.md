@@ -165,7 +165,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Thüringen
 - Erfurt[Dazard Dilard Andbeker Aka "Freki"](https://dazard-dilard-andbeker-freki.jimdofree.com/)
-- 
+- Schmieritz[Ulrich von der Südheide](https://germanpinscher.pedigreedatabaseonline.com/de/Ulrich-von-der-S%C3%BCd-Heide/pedigree/18822/i)
 
 ## Ausland
 
