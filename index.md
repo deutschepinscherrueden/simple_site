@@ -61,7 +61,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Bünde [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
 - Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
-- Gütersloh [Quickley Cash vom Ettaler Mandl "Oskar"](https://www.markuslange.info/)
 - Gelsenkirchen [Schröder von der Schwalmaue](https://www.deutsche-pinscher-von-der-schwalmaue.de/schroeder.html)
 - Reichshof [Eddie Duke von Modisse](https://pedigreedatabaseonline.com/germanpinscher/de/Eddie-Duke-von-Modisse/pedigree/17801/i)
 - Ladbergen [Proud Jewel Vincent](http://jesko-dp.de)
