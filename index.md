@@ -102,7 +102,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 
 ### Niederlande
 
-- Alkmaar [Rembrandt Erasmus von Cronstein](https://pedigreedatabaseonline.com/germanpinscher/de/Rembrandt-Erasmus-von-Cronestein/pedigree/3728/i)
 
 ### Polen
 
@@ -148,7 +147,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseon
 - Lotte [Bond vom Treenevalley] verlinkung auf die HP folgt
 
 ### Nordrein-Westfalen
-- Arnsberg [Artos Bruno of Forest Rose](https://pedigreedatabaseonline.com/germanpinscher/de/Artos-Bruno-of-Forest-Rose/pedigree/11912/i)
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
