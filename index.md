@@ -170,6 +170,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Östereich
 
-- Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://deutscher-pinscher-deckruede-amaryllo.jimdosite.com/)
+- Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://germanpinscher.pedigreedatabaseonline.com/de/Earl-Pepper-vom-Isern-Hinnerk/pedigree/15208/i)
 
 ### Schweiz
