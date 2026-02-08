@@ -51,7 +51,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 - Wietze [Fero vom Bruchstein](https://starlords.jimdosite.com/)
 - Osnabrück [Raiko vom Sternentor](http://www.raiko-vom-sternentor.de/index.html)
-- Brest [Earl Pepper vom Isern Hinnerk](https://mbannas.wixsite.com/vomisernhinnerk/deckr%C3%BCde)
+- Brest [Earl Pepper vom Isern Hinnerk](https://germanpinscher.pedigreedatabaseonline.com/de/Earl-Pepper-vom-Isern-Hinnerk/pedigree/15208/i)
 - Hameln [Vasko von der Südheide](https://pedigreedatabaseonline.com/germanpinscher/de/Vasco-von-der-S%C3%BCd-Heide/pedigree/19088/i)
 - Ostercappeln [Muethisch Bielefeld gibts nicht Ben "Burkhard"](https://pedigreedatabaseonline.com/germanpinscher/de/Muethisch-Bielefeld-gibts-nicht-Ben/pedigree/18914/i)
 
