@@ -9,7 +9,7 @@ Wer seinen Deckrüden in diese Tabelle eintragen lassen will, schickt mir bitte 
 
 Wer keine Homepage für seinen Rüden hat, kann auch ( nach Ansprache) die Homepage des Züchters schicken.
 
-Auch eine Verlinkung über [German Pinscher Database](https://pedigreedatabaseonline.com/germanpinscher/de/) oder Facebook ist möglich. Bitte aber nur Einträge mit Kontaktdaten.
+Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.pedigreedatabaseonline.com/de/al/studdogs/F) oder Facebook ist möglich. Bitte aber nur Einträge mit Kontaktdaten.
 
 
 
