@@ -25,7 +25,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 - Wernberg-Köblitz [Baron-Bendix vom Weitmoos](https://www.baron-bendix.de)
 - Maisach          [Chino von der Blauen Schneid](https://chino-von-der-blauen-schneid.jimdosite.com/)
-- Stein            [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
+- Stein bei Nürnberg [Chess von den Rednitzauen](https://pedigreedatabaseonline.com/germanpinscher/de/Chess-von-den-Rednitzauen/pedigree/5930/i)
 - Vilsheim [Feuersteinchen vom Königsherz "Jake"](https://pedigreedatabaseonline.com/germanpinscher/de/Feuersteinchen-vom-K%C3%B6nigsherz/pedigree/13236/i)
 - Bergkirchen [Pumuckel vom Schützengrund "Cosmo"](https://www.pinscher-schuetzengrund.de/deutscher-pinscher-1/cosmo-pumuckel/)
 
@@ -124,7 +124,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Bayern
 - Buch am Erlbach [Bright Fox Inner Light "Foxi"](https://www.deutsche-pinscher.com/deckr%C3%BCden/foxi/)
-- Stein [Pinch-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
+- Stein bei Nürnberg [Pinch-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
 - Eichstätt [Zhivariis-QuickSilver"Samsa"](https://pedigreedatabaseonline.com/germanpinscher/de/Zhivariis-QuickSilver/pedigree/19339/i)
 - Bayreuth [Sommarstadens Gracious Clow"Legolas"](https://pedigreedatabaseonline.com/germanpinscher/en/Sommarstadens-Gracious-Glow/pedigree/18176/i)
 
