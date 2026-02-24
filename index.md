@@ -59,8 +59,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 ### Nordrhein-Westfalen
 
 - Unna [Damai-Dexter vom Kaiser Haus](https://damai-dexter-vom-kaiser-h.jimdofree.com/)
-- Bünde [Gregor von der Grafschaft Mark](https://gregor-vdgm.wixsite.com/gregor-vdgm)
-- Bönen [Hoomer von Scopingau](https://deutscher-pinscher-hoomer-von-scopingau.jimdosite.com/)
 - Neuss [Dark Angels Dirty little Secret "Mexx"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Dirty-Little-Secret/pedigree/6375/i)
 - Gelsenkirchen [Schröder von der Schwalmaue](https://www.deutsche-pinscher-von-der-schwalmaue.de/schroeder.html)
 - Reichshof [Eddie Duke von Modisse](https://pedigreedatabaseonline.com/germanpinscher/de/Eddie-Duke-von-Modisse/pedigree/17801/i)
