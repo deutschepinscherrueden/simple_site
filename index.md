@@ -100,6 +100,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 
 ### Niederlande
+- Dark Angels Out of the Dark "Dexx"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Out-Of-The-Dark/pedigree/18029/i)
 
 
 ### Polen
@@ -174,4 +175,4 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Schweiz
 ### Holland
-- [Dark Angels Out of the Dark "Dexx"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Out-Of-The-Dark/pedigree/18029/i)
+
