@@ -152,6 +152,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Hassloch [Bäretriewer's Ukko "Mogli"](https://baeretriewersukko.jimdofree.com/)
 
 ### Saarland
+[Dark Angels Fade to Grey "Emil"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Fade-to-Grey/pedigree/11709/i)
 
 ### Sachsen
 - Leipzig [Oberst Otto vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
