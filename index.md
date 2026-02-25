@@ -20,6 +20,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Altdorf     [Freyr Neit Konstantin](https://pedigreedatabaseonline.com/germanpinscher/de/Freyr-Neit-Konstantin/pedigree/7931/i).
 - Schlierbach [Dundee vom Bissinger See](http://www.pinscher-vom-bissinger-see.de/Deckrueden/)
 - Stuttgart   [Kaminski de la Ville de Hamburg](https://www.pinscher-hamburg.de/deckr%C3%BCden/kaminski/)
+  
 
 ### Bayern
 
@@ -97,10 +98,11 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 -  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz "Loki"](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
 
 ### Schweiz
+- [Dark Angels Tears Run Dry "Zeno"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 ### Niederlande
-- Dark Angels Out of the Dark "Dexx"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Out-Of-The-Dark/pedigree/18029/i)
+- Dark Angels Out of the Dark "Dexx"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 ### Polen
@@ -119,6 +121,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Baden- Württenberg
 - Achstetten [Mirai-Paco vom Röderauer Elbland](https://deutscherpinscher.wixsite.com/zuchtruede)
+- Heidelberg [Dark Angels Making Memories "Morty"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 
@@ -153,7 +156,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Hassloch [Bäretriewer's Ukko "Mogli"](https://baeretriewersukko.jimdofree.com/)
 
 ### Saarland
-[Dark Angels Fade to Grey "Emil"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Fade-to-Grey/pedigree/11709/i)
+-Hemmersdorf [Dark Angels Fade to Grey "Emil"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 ### Sachsen
 - Leipzig [Oberst Otto vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
@@ -174,5 +177,9 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://germanpinscher.pedigreedatabaseonline.com/de/Earl-Pepper-vom-Isern-Hinnerk/pedigree/15208/i)
 
 ### Schweiz
+
+[ Dark Angels Dust in the Wind "Lenny"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
+
+
 ### Holland
 
