@@ -102,7 +102,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 
 ### Niederlande
-- [Dark Angels Out of the Dark "Dexx"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
+- Beusichem [Dark Angels Out of the Dark "Dexx"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 ### Polen
