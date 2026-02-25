@@ -98,7 +98,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 -  Neunkirchen Niederöstereich [Einfallspinselchen vom Königsherz "Loki"](https://www.schnauzer-pinscherklub.at/essential_grid/einfallspinselchen-vom-koenigsherz/)
 
 ### Schweiz
-- [Dark Angels Tears Run Dry "Zeno"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
+- Zug [Dark Angels Tears Run Dry "Zeno"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 ### Niederlande
@@ -155,7 +155,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Hassloch [Bäretriewer's Ukko "Mogli"](https://baeretriewersukko.jimdofree.com/)
 
 ### Saarland
--Hemmersdorf [Dark Angels Fade to Grey "Emil"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
+- Hemmersdorf [Dark Angels Fade to Grey "Emil"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 ### Sachsen
 - Leipzig [Oberst Otto vom Röderauer Elbland](https://www.leipzigpinscher.de/seite/642689/oberst-otto.html)
@@ -177,7 +177,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Schweiz
 
-[ Dark Angels Dust in the Wind "Lenny"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
+- Epedes [Dark Angels Dust in the Wind "Lenny"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
 
 
 ### Holland
