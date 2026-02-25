@@ -173,3 +173,5 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Wels Oberöstereich [Regina's Minpin A Redstar Amaryllo](https://germanpinscher.pedigreedatabaseonline.com/de/Earl-Pepper-vom-Isern-Hinnerk/pedigree/15208/i)
 
 ### Schweiz
+### Holland
+- [Dark Angels Out of the Dark "Dexx"](https://germanpinscher.pedigreedatabaseonline.com/de/Dark-Angels-Out-Of-The-Dark/pedigree/18029/i)
