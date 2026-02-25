@@ -68,7 +68,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 ### Rheinland- Pfalz
 
 - Hassloch [Keanu von der Shilli Ranch](https://keanuvonderschilliranch.jimdofree.com/)
-- Trassem [Dark Angels I am Legend "Milan"](https://www.facebook.com/Dark-Angels-I-am-Legend-Deckr%C3%BCde-Deutscher-Pinscher-106280327555849)
+  
 
 ### Saarland
 
@@ -145,7 +145,6 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 
 ### Niedersachsen
 - Bassum [Falcon Ce Da Set Bohemicus](https://www.falconcedasetbohemicus.de/)
-- Lüchow-Dannenberg [Dark Angels Jukebox Hero "Hugo"](https://pedigreedatabaseonline.com/germanpinscher/de/Dark-Angels-Jukebox-Hero/pedigree/11657/i)
 - Hameln [Huckleberry vom Schützengrund](https://www.pinscher-schuetzengrund.de/deutscher-pinscher-1/huckleberry/)
 - Lotte [Bond vom Treenevalley] verlinkung auf die HP folgt
 
