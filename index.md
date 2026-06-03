@@ -147,12 +147,14 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Bassum [Falcon Ce Da Set Bohemicus](https://www.falconcedasetbohemicus.de/)
 - Hameln [Huckleberry vom Schützengrund](https://www.pinscher-schuetzengrund.de/deutscher-pinscher-1/huckleberry/)
 - Lotte [Bond vom Treenevalley] verlinkung auf die HP folgt
+- Bassum [Dexterity Grazy Churchill] ( https://dexterity-crazy-churchill.jimdosite.com/)
 
 ### Nordrein-Westfalen
 - Lüdenscheid [Legendorf Bugs Bunny](https://legendorf-bugs-bunny.beepworld.de/)
 
 ### Rheinland-Pfalz
 - Hassloch [Bäretriewer's Ukko "Mogli"](https://baeretriewersukko.jimdofree.com/)
+- Gönnheim [Alf vom Magnolienhof](https://share.google/a61XhVnntxAw98CaB)
 
 ### Saarland
 - Hemmersdorf [Dark Angels Fade to Grey "Emil"](https://www.darkangels-deutschepinscher.de/deckr%C3%BCden/)
