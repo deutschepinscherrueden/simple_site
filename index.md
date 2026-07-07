@@ -41,6 +41,12 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 -[Kenobi de la Ville de Hamburg](https://www.pinscher-hamburg.de/deckr%C3%BCden/kenobi/)
 
 ### Hamburg
+-[Bennjo von der Süd-Heide]
+(https://germanpinscher.pedigreedatabaseonline.com/en/Benno-von-der-S%C3%BCd-Heide/pedigree/20915/i)
+(https://www.facebook.com/share/15uQJpuBdX8/)
+(https://www.instagram.com/deutscher_pinscher_benno?igsh=Z2tpbGQ0dTU3NnJy)
+
+
 
 ### Hessen
 
