@@ -136,6 +136,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 - Stein bei Nürnberg [Pinch-hit's Ulrico](https://pedigreedatabaseonline.com/germanpinscher/de/Pinch-hit-s-Ulrico/pedigree/18044/i)
 - Eichstätt [Zhivariis-QuickSilver"Samsa"](https://pedigreedatabaseonline.com/germanpinscher/de/Zhivariis-QuickSilver/pedigree/19339/i)
 - Bayreuth [Sommarstadens Gracious Clow"Legolas"](https://pedigreedatabaseonline.com/germanpinscher/en/Sommarstadens-Gracious-Glow/pedigree/18176/i)
+- Friedberg [Salvo Louis Dexter vom Ettaler Mandl](https://germanpinscher.pedigreedatabaseonline.com/de/Salvo-Louis-Dexter-vom-Ettaler-Mandl/pedigree/21205/i)
 
 ### Berlin
 
