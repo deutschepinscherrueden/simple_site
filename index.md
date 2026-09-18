@@ -147,6 +147,7 @@ Auch eine Verlinkung über [German Pinscher Database](https://germanpinscher.ped
 ### Hamburg
 
 ### Hessen
+-Rödermark [Buddy vom Orensfeld](https://germanpinscher.pedigreedatabaseonline.com/de/Buddy-vom-Orensfels/pedigree/20926/i)
 
 ### Mecklenburg-Vorpommern
 
